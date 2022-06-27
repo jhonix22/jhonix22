@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @jhonix22
+👋 Hi, I’m @jhonix22
